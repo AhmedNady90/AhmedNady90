@@ -13,13 +13,13 @@ ahmed.nadi93@yahoo.com
 **Expérience professionnelle**
 
 1.	Chercheur [2023-2024]
-CNRS, CIMAP, Caen, France
+**CNRS, CIMAP, Caen, France**
 2.	Enseignant [2022-2023]
-ESAIP (école d'ingénieurs), Angers, France 
+**ESAIP (école d'ingénieurs), Angers, France** 
 3.	Chercheur [2019-2021]
-Laboratoire de Photonique d’Angers, Université d’Angers, France
+**Laboratoire de Photonique d’Angers, Université d’Angers, France**
 4.	Chercheur [2015-2016] 
-Quantum and Laser Science Lab, University of Malaya, Malaysia 
+**Quantum and Laser Science Lab, University of Malaya, Malaysia** 
 
 **Intérêts**
 
