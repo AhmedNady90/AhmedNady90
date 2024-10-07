@@ -1,7 +1,13 @@
 #**Ahmed Nady**
 
-cité du colombier, 49000 Angers    ![Ahmed Nady](a_nady.jpg)
+![Ahmed Nady](a_nady.jpg)
+
+cité du colombier, 49000 Angers    
+
+
 ahmed.nadi93@yahoo.com
+
+
 [Visit Linkedin](https://www.linkedin.com/in/ahmed-nady-5b3748248/)
 
 **Formations**
